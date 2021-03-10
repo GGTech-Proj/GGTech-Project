@@ -1,0 +1,2 @@
+# GGTech-Project
+031021 • II - BCSAD • 2ND SEM • S.Y 2020-2021
